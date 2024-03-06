@@ -1,2 +1,2 @@
 # nathália
-## "calma seu vandeco, lembre dos seus nervos, pode explodir!!!"
+## "estou de olho em você uasalski... todo dia..."
